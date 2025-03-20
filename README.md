@@ -1,0 +1,1 @@
+# latvijas-uznemumu-registrs
